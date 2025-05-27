@@ -6,15 +6,15 @@ There are many living in India and UAE who are looking for connections. If you a
 
 ## List of School Girl WhatsApp Group Link Join
 
-- Malayalam Hub 👉 [Join Now](https://www.watsapp.com)  
-- Malayalam Group 👉 [Join Now](https://www.watsapp.com)  
-- Delhi Malayalam 👉 [Join Now](https://www.watsapp.com)  
-- All Malayalam 👉 [Join Now](https://www.watsapp.com)  
+- Malayalam Hub 👉 [Join Now](https://chat.whatsapp.com/DvJUBXW2CyT2ekUSZ9cClv)  
+- Malayalam Group 👉 [Join Now](https://chat.whatsapp.com/FOARZCDqNItHHpsokTjzXa)  
+- Delhi Malayalam 👉 [Join Now](https://www.whatsapp.com/channel/0029VaEAmbqFnSz1EWxNpb3I)  
+- All Malayalam 👉 [Join Now](https://chat.whatsapp.com/FhJPCu86gq3ISyE1OzdmeB)  
 - Mumbai Malayalam 👉 [Join Now](https://www.watsapp.com)  
-- Live Vedi 👉 [Join Now](https://www.watsapp.com)  
+- Live Vedi 👉 [Join Now](https://chat.whatsapp.com/FhJPCu86gq3ISyE1OzdmeB)  
 - Best Mala 👉 [Join Now](https://www.watsapp.com)  
-- Malayalam Lovers 👉 [Join Now](https://www.watsapp.com)  
-- Crazy Group 👉 [Join Now](https://www.watsapp.com)  
+- Malayalam Lovers 👉 [Join Now](https://chat.whatsapp.com/HH2O4rdzdcZBnLSOaCUZAp)  
+- Crazy Group 👉 [Join Now](https://chat.whatsapp.com/FOARZCDqNItHHpsokTjzXa)  
 - Malayalam Zone 👉 [Join Now](https://www.watsapp.com)  
 
 In this article, I shared **school girls WhatsApp groups** for you. You can easily join any group you want with a single click on the "Join Now" button.
